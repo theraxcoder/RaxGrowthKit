@@ -50,6 +50,6 @@ Star ⭐ if this helps your X journey!
 
 Love these resources? Buy me a coffee to keep the free stuff coming!  
 
-[Buy Me a Coffee](https://www.buymeacoffee.com/rax coder)  
+[Buy Me a Coffee](https://www.buymeacoffee.com/raxcoder)  
 
 — RaxCoder | Anonymous dev dropping growth hacks 🕵️‍♂️🔥
