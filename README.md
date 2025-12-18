@@ -45,3 +45,11 @@ Found a better free growth resource? Fork & submit a PR – keep it 100% free!
 Star ⭐ if this helps your X journey!
 
 — RaxCoder | Anonymous dev dropping growth hacks 🕵️‍♂️🔥
+
+## Support the Project ☕️
+
+Love these resources? Buy me a coffee to keep the free stuff coming!  
+
+[Buy Me a Coffee](https://www.buymeacoffee.com/rax coder)  
+
+— RaxCoder | Anonymous dev dropping growth hacks 🕵️‍♂️🔥
